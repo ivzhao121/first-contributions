@@ -9,7 +9,7 @@
 - [Shyam Raj D](https:github.com/shyamshyam018) **Stoic Coder Shyam Says HI**
 - [Harshana Srimal](https://harshanasrimal.com) **Love to Code. find me on** [**Github**](https://github.com/harshanasrimal) **also**
 - [Abraham](https://github.com/Abraham-Chileshe/) **Hi**
-- [Qamreen](https://github.com/Qamreen22) **Hi**
+- [Qamreen](https://github.com/Qamreen22) **Hi** iso
 - [Abhi](https://github.com/Abhi-goyal1) **Hi**
 - [Aaron](https://github.com/nuffQuantumSayd) **First timer!!**
 - [Hasson](https://github.com/ahmeedHassan1) **Hello**
